@@ -1,2 +1,2 @@
 # Ruchira
-Details of Ruchira
+Details of Ruchira Chakrborty
